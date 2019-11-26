@@ -2,58 +2,40 @@
 
 sus quiero mucho mucho
 
-Here's a little song I wrote
-You might want to sing it note for note
-Don't worry, be happy
-In every life we have some trouble
-But when you worry you make it double
-Don't worry, be happy
-Don't worry, be happy now
-don't worry
-(Ooh, ooh ooh ooh oo-ooh ooh oo-ooh) be happy
-(Ooh, ooh ooh ooh oo-ooh ooh oo-ooh) don't worry, be happy
-(Ooh, ooh ooh ooh oo-ooh ooh oo-ooh) don't worry
-(Ooh, ooh ooh ooh oo-ooh ooh oo-ooh) be happy
-(Ooh, ooh ooh ooh oo-ooh ooh oo-ooh) don't worry, be happy
-Ain't got no place to lay your head
-Somebody came and took your bed
-Don't worry, be happy
-The landlord say your rent is late
-He may have to litigate
-Don't worry, be happy
-Oh, ooh ooh ooh oo-ooh ooh oo-ooh don't worry, be happy
-Here I give you my phone number, when you worry, call me, I make you happy, don't worry, be happy)
-Don't worry, be happy
-Ain't got no cash, ain't got no style
-Ain't got no gal to make you smile
-Don't worry, be happy
-'Cause when you worry your face will frown
-And that will bring everybody down
-So don't worry, be happy
-Don't worry, be happy now
-(Ooh, ooh ooh ooh oo-ooh ooh oo-ooh) don't worry
-(Ooh, ooh ooh ooh oo-ooh ooh oo-ooh) be happy
-(Ooh, ooh ooh ooh oo-ooh ooh oo-ooh) don't worry, be happy
-(Ooh, ooh ooh ooh oo-ooh ooh oo-ooh) don't worry
-(Ooh, ooh ooh ooh oo-ooh ooh oo-ooh) be happy
-(Ooh, ooh ooh ooh oo-ooh ooh oo-ooh) don't worry, be happy
-Now there, is this song I wrote
-I hope you learned note for note
-Like good little children, don't worry, be happy
-Now listen to what I said, in your life expect some trouble
-When you worry you make it double
-But don't worry, be happy, be happy now
-don't worry
-(Ooh, ooh ooh ooh oo-ooh ooh oo-ooh) be happy
-(Ooh, ooh ooh ooh oo-ooh ooh oo-ooh) don't worry, be happy
-don't worry
-(Ooh, ooh ooh ooh oo-ooh ooh oo-ooh) be happy
-(Ooh, ooh ooh ooh oo-ooh ooh oo-ooh) don't worry, be happy
-don't worry, don't worry
-(Ooh, ooh ooh ooh oo-ooh ooh oo-ooh) don't worry, don't do it, be happy
-(Ooh, ooh ooh ooh oo-ooh ooh oo-ooh) put a smile in your face
-(Ooh, ooh ooh ooh oo-ooh ooh oo-ooh) don't bring everybody down like this
-don't worry
-(Ooh, ooh ooh ooh oo-ooh ooh oo-ooh) it will soon pass, whatever it is
-(Ooh, ooh ooh ooh oo-ooh ooh oo-ooh) don't worry, be happy
-(Ooh, ooh ooh ooh oo-ooh ooh oo-ooh) I'm not worried, I'm happy
+Bon dia
+
+La vella Montserrat
+Desperta el barri a cops d'escombra tot cantant
+Les primeres persianes
+S'obren feixugues badallant
+Rere el vidre entelat
+El cafeter assegura que no era penal
+I es desfà la conversa igual que el sucre del tallat
+Bon dia
+Ningú ho ha demanat però fa bon dia
+Damunt els caps un sol ben insolent
+Il•lumina descarat
+Tot l'espectacle de la gent
+Al bell mig de la plaça
+La peixatera pren paciència amb la Consol
+Que remuga i regala
+Grans bafarades d'alcohol
+I al pedrís reposant
+L'avi Josep no es deixa perdre cap detall
+I amb l'esguard es pregunta
+Quants dies més té de regal
+Bon dia
+Ningú ho ha demanat però fa bon dia
+Damunt els caps un sol ben insolent
+Il•lumina descarat
+Tot l'espectacle de la gent
+Nens xisclant, olor a pixum de gat
+Veïnes que un cop has passat et critiquen
+Gent llençant la brossa d'amagat
+I un retardat que amb ulls burletes et mira
+I diu:
+Bon dia
+Ningú ho ha demanat però fa bon dia
+Damunt els caps un sol ben insolent
+Il•lumina descarat
+Tot l'espectacle de la gent
